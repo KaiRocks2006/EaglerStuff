@@ -1,2 +1,2 @@
 # EaglerStuff
-Add me on Discord! @boykiss3r_1
+Add me on Discord! @astralis.client
